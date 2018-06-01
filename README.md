@@ -10,6 +10,6 @@ starting from 1-June I will be writing notes in the <a href="https://github.com/
 
 <h2>why is this? </h2>
 
-I do this sort of recording my achievments as Luke Graham Said in 7 Years Song 
+I do this sort of recording my achievments to keep passion As Long As Possible<br>Luke Graham Said in 7 Years Song<br> 
 "Remember life and then your life becomes a better one"
 </html>
